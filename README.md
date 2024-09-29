@@ -4,9 +4,9 @@ There’s Something About Foxxo is a short story that follows the titular charac
 
 ## Background
 
-This story was originally bundled with the Wuffle, The Friendly Wolf: Year 2 comic collection. While it had limited publication, it was archived as a PDF on Archive.org, but it was recently taken down for supposedly violating the TOS, despite clearly stating that everything, except a few included fan art, was [dedicated to the public domain](https://sheezy.art/url/https://web.archive.org/web/20150512024057/http://www.wufflecomics.com/free-license) under the CC0 license - this story included. There’s Something About Foxxo was rewritten from scratch to reach a broader audience, and also get some writing practice.
+This story was originally bundled with the Wuffle, The Friendly Wolf: Year 2 comic collection. While it had limited publication, it was archived as a PDF on Archive.org, but it was recently taken down for supposedly violating the TOS, despite clearly stating that everything, except a few included fan art, was [dedicated to the public domain](https://sheezy.art/url/https://web.archive.org/web/20150512024057/http://www.wufflecomics.com/free-license) under the CC0 license - this story included. In the meantime, you can get the original files (and more) on [Google Drive](https://sheezy.art/url/https://drive.google.com/drive/folders/1LG9Dgzp1dz9h41y0HJda0G668RVhdEVD?usp=sharing).
 
-In the meantime, you can get the original files (and more) on [Google Drive](https://sheezy.art/url/https://drive.google.com/drive/folders/1LG9Dgzp1dz9h41y0HJda0G668RVhdEVD?usp=sharing).
+There’s Something About Foxxo was rewritten from scratch to reach a broader audience, and also get some writing practice.
 
 ## Credits
 
