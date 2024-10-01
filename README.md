@@ -16,12 +16,11 @@ There’s Something About Foxxo was rewritten from scratch to reach a broader au
 - Illustrations by Wing Yuda
 - Rewritten by Tony Bark
 
-## Instructions
+## FAQ
 
-### EBook Creator for macOS
+### TextBundle?
 
-- Copy and rename `/src` directory
-- Add the `.textbundle` extension
+This was originally written in EBook Creator for macOS because it could compile Markdown to ePub. However, since most native applications and some formats are directories on a Mac, it can be directly be accessed without the software. It is simply there for convenience.
 
 ## License
 
