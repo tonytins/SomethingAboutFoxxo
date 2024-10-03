@@ -117,7 +117,7 @@ Foxxo shuddered.
 
 “My friends even gave me some good luck charms, for my book meeting with the owner of the brick company today! Take a look in the basket over the counter.”
 
-Joe approached the basket Foxxo had pointed to and opened it. Inside, he found a plate with a waffle on it, and the smiling face of Wuffle was drawn in maple syrup. Next to it was a fresh fish wrapped in paper, with a note in Puipui’s handwriting said, “Don’t mess it up, you spoiled fox!” Next to that was a huge carrot, Debbita’s favorite good luck charm. There were cookies from Mr.s Hazel’s family a piece of chocolate from Matilda, a loaf of bread from Dr. Greyham and Chuck, and a candy statue of some video game character from Aunty Pinky.
+Joe approached the basket Foxxo had pointed to and opened it. Inside, he found a plate with a waffle on it, and the smiling face of Wuffle was drawn in maple syrup. Next to it was a fresh fish wrapped in paper, with a note in Pui Pui’s handwriting said, “Don’t mess it up, you spoiled fox!” Next to that was a huge carrot, Debbita’s favorite good luck charm. There were cookies from Mr.s Hazel’s family a piece of chocolate from Matilda, a loaf of bread from Dr. Greyham and Chuck, and a candy statue of some video game character from Aunty Pinky.
 
 “They certainly do support your efforts, young master.”
 
@@ -253,19 +253,19 @@ Rushing to the huge, ornate telephone, Foxxo began looking through the address l
 
 “Hello?”
 
-“Puipui! I need to talk to Wuffle!”
+“Pui Pui! I need to talk to Wuffle!”
 
 “Well, well, well! What have you done to earn a phone from His Royal Majesty, eh?” asked the hedgehog.
 
 “No time for jokes! I need Wuffle”
 
-“I don’t think Wuffle would want to chat with someone who’s so rude…” Puipui spoke with a yawn. “You didn’t even use the Magic Word!”
+“I don’t think Wuffle would want to chat with someone who’s so rude…” Pui Pui spoke with a yawn. “You didn’t even use the Magic Word!”
 
 Foxxo felt like a steam was about to shoot from his ears.
 
-“Fine…Puipui, may I PLEASE speak to Wuffle!?” he asked through a gritted teeth.
+“Fine… Pui Pui, may I PLEASE speak to Wuffle!?” he asked through a gritted teeth.
 
-“Well, since you asked so politely, why not?” Puipui chuckled, handing the phone to his friend.
+“Well, since you asked so politely, why not?” Pui Pui chuckled, handing the phone to his friend.
 
 Soon, the welcome voice of Wuffle was on the line.
 
@@ -299,7 +299,7 @@ He ran to Joe’s wardrobe closet and began to eagerly searching for a particula
 
 “Aha! Here it is! It’s perfect! I knew saving this would come in handy…”
 
-“EXUSE ME!” boomed the voice of General Bacon. Foxxo rushed back to the sitting room to find the General looking a bit less calm than before, and wilhelmina appeared even more disapproving.
+“EXUSE ME!” boomed the voice of General Bacon. Foxxo rushed back to the sitting room to find the General looking a bit less calm than before, and Wilhelmina appeared even more disapproving.
 
 “Yes, sir?”
 
@@ -341,7 +341,7 @@ Foxxo sighed.
 
 “Fine, fine, just hurry upstairs and clean yourself up a bit in one of the guest rooms. I’ll bring you a suit.”
 
-“Oh, sure, Foxoo…”
+“Oh, sure, Foxxo…”
 
 Wuffle stood there for a moment, looking confused.
 
@@ -363,7 +363,7 @@ Foxxo slapped himself in the face again.
 
 “Never mind. Just get the suit on, the General is waiting.
 
-Foxoo went back out into the hall and shut the door. After a moment, he heard Wuffle’s voice calling out to him, but it sounded as if was having some trouble breathing.
+Foxxo went back out into the hall and shut the door. After a moment, he heard Wuffle’s voice calling out to him, but it sounded as if was having some trouble breathing.
 
 “Foxxo… I’ve got a little trouble… problem…”
 
@@ -476,13 +476,13 @@ Foxxo felt like was losing even more ground in this negation.
 
 “Okay, first of all, why the heck did you call me Foxxo out there?!”
 
-“Um… because that’s your name. I always call you Foxxoo…”
+“Um… because that’s your name. I always call you Foxxo…”
 
 “A butler doesn’t refer to his employer by his first name! Call me ‘master’ or ‘sir,’ not just plain old Foxxo!”
 
 “But I’m not really your butler…” Wuffle spoke apologetically, “that feels too weird. Can’t I just call you Foxxo?”
 
-“Ugh, fine… can you call me Mister Fooxo, at least?”
+“Ugh, fine… can you call me Mister Foxxo, at least?”
 
 “Okay, Foxxo. Uh, I mean… Mister Foxxo. Do I have to call you that whole time the General’s here? Maybe I could try avoid calling you anything; I could try to be silent like Joe. How about I…”
 
@@ -512,9 +512,9 @@ Wuffle eyes bugged out.
 
 Wuffle frowned.
 
-“But Foxxo, you still be the majority owner! You’re already in charge of the major business in Gingerbread Village, giving up 5 percent of this watermill business isn’t going to do you any harm. Besides, you promised the villagers they’d be equal shareholders after you. I know you, Foxoo, and you’re not nearly as greedy as Puipui says. You care about your friends.”
+“But Foxxo, you still be the majority owner! You’re already in charge of the major business in Gingerbread Village, giving up 5 percent of this watermill business isn’t going to do you any harm. Besides, you promised the villagers they’d be equal shareholders after you. I know you, Foxxo, and you’re not nearly as greedy as Pui Pui says. You care about your friends.”
 
-“But I am greedy! I have to be! I give up even a little, it’ll make me look weak… in front of my family, in front of friends… in front of…” Foxxo stuck out of his tongue in disgust, “in front of Puipui.”
+“But I am greedy! I have to be! I give up even a little, it’ll make me look weak… in front of my family, in front of friends… in front of…” Foxxo stuck out of his tongue in disgust, “in front of Pui Pui.”
 
 “Gee, Foxxo, I don’t think anyone will think you’re weak… they’ll just think you’re doing what’s best for Gingerbread Village. I know it’s a tough decision, but everyone is counting on you to make tough decision like this, to do the right for everybody.
 
@@ -634,7 +634,7 @@ The General spat the words out, as if they tasted sour.
 
 “Certainly, though I would check over the blueprint and the building and build information. I owe it to the village to be thorough.”
 
-“Wilhelmina, give him the building plans,” the General gestured to his assistant. The chameleon gathered up the approaitate papers and handed them to Foxxo. He studied them, closely, making sure not to overlook a single detail. At last, he began to checking the final pages, the maps ad photos of the construction site.
+“Wilhelmina, give him the building plans,” the General gestured to his assistant. The chameleon gathered up the approciate papers and handed them to Foxxo. He studied them, closely, making sure not to overlook a single detail. At last, he began to checking the final pages, the maps ad photos of the construction site.
 
 “These are the exact location where the mill will be built?”
 
@@ -670,7 +670,7 @@ Foxxo looked at the General, and it was clear that boar wasn’t going to budge.
 
 “HOW CAN YOU ASK ME GIVE UP ANOTHER **10** PERCENT!?”
 
-“Wha… another 10 percen!?” Wuffle, shocked by the outburst, slipped on some of the cola that he had dripped onto the floor. He land on Wilhelmina’s lap. Despite being smaller than Wuffle, she somehow managed to carry him in her arms as she stood up, walked a short distance away from her chair, and dropped him with a loud thud on the floor. Without a word, she returned to her seat.
+“Wha… another 10 percent!?” Wuffle, shocked by the outburst, slipped on some of the cola that he had dripped onto the floor. He land on Wilhelmina’s lap. Despite being smaller than Wuffle, she somehow managed to carry him in her arms as she stood up, walked a short distance away from her chair, and dropped him with a loud thud on the floor. Without a word, she returned to her seat.
 
 As he began to stand up, there was a loud rrrrrrip! His pants had split. Wuffle went red with embarrassment.
 
@@ -754,7 +754,7 @@ For the first time in a while, Foxxo really smiled.
 
 “Thanks, Wuffle.”
 
-Wufle siled back. He was still curious about what exactly he caused the meeting to turn out so badly, but for now, it seemed like Foxxo wanted to be so alone with his thoughts. He gave his friend a quick and headed back upstairs.
+Wuffle smiled back. He was still curious about what exactly he caused the meeting to turn out so badly, but for now, it seemed like Foxxo wanted to be so alone with his thoughts. He gave his friend a quick and headed back upstairs.
 
 “It will be a nice to get out of this tight suit… I can barely breath in this thing. All day it felt it’s going to explo-“
 
@@ -784,7 +784,7 @@ As Wuffle walked down the street back to his, he was still wondering about Foxxo
 
 As he pondered it while walking through the last rays of the sunlight, he found his friends gather around ahead of him.
 
-“So!?” asked Puipui eagerly. “Did they make a deal!?”
+“So!?” asked Pui Pui eagerly. “Did they make a deal!?”
 
 “Is the bakery going to double their donut production!?” asked Debbita, looking hungrier than ever.
 
@@ -796,25 +796,25 @@ As he pondered it while walking through the last rays of the sunlight, he found 
 
 “I’m… really sorry, everyone…” Wuffle’s ears drooped. “But… things… didn’t work out.”
 
-“WHAT!?” Puipui’s voice rose louder than everyone’s as all the villagers expressed their disbelief and disappointment. Wuffle raised his hands to calm the crowd.
+“WHAT!?” Pui Pui’s voice rose louder than everyone’s as all the villagers expressed their disbelief and disappointment. Wuffle raised his hands to calm the crowd.
 
 ![02-228](assets/D51AE78A-4146-4ED0-B76F-ADC8E968E573.jpg)
 
 Just as he began to storm towards Foxxo’s yard, Wuffle put a hand on his shoulder.
 
-“Puipui, everyone, listen… I know Foxxo seems greedy… and, yeah, sometimes he can be really selfish, but… he’s still our friend. And I don’t really believe he’d do something like this without a good reason.”
+“Pui Pui, everyone, listen… I know Foxxo seems greedy… and, yeah, sometimes he can be really selfish, but… he’s still our friend. And I don’t really believe he’d do something like this without a good reason.”
 
 “A good reason!?” Matilda chimed in. “What reason could have to demand more money!? How can that be anything but selfish?”
 
 “I know it looks bad. I was upset too, at first. But something tells me that this is one of those times when we just have to trust Foxxo. He might have always do the right thing, but I know cares about us. I’m sure he’ll find another way to help the village grow. Maybe this wasn’t the right project. And maybe General Bacon wasn’t the right person to do business with.”
 
-Puipui crossed his arms and leaned against a fence, frowing.
+Pui Pui crossed his arms and leaned against a fence, frowing.
 
 “Maybe, but I still don’t like it. And I don’t see HOW he could have a good reason to ask for more money.”
 
 “I don’t think it was about the money.”
 
-Puipui stick his tongue out.
+Pui Pui stick his tongue out.
 
 “With Foxxo, it’s ALWAYS bout money!”
 
@@ -832,9 +832,9 @@ Puipui stick his tongue out.
 
 “Yeah!” everyone cheered.
 
-“For now, though, let’s have some dinner at my place Puipui caught some great fish today. I’ll cook!”
+“For now, though, let’s have some dinner at my place Pui Pui caught some great fish today. I’ll cook!”
 
-Though Puipui wasn’t the only one who was unsatisfied with the way things had turned, everyone trusted Wuffle. If he said that they ought to give Foxxo the benefit the doubt, they willing to at least put aside their disappointment and wait to deal with the problem another day. And right now, the prospect of a dinner seemed like a more urgent concern anyway.
+Though Pui Pui wasn’t the only one who was unsatisfied with the way things had turned, everyone trusted Wuffle. If he said that they ought to give Foxxo the benefit the doubt, they willing to at least put aside their disappointment and wait to deal with the problem another day. And right now, the prospect of a dinner seemed like a more urgent concern anyway.
 
 As they walked together down the road, each lost in their own thoughts, Debbita broke the silence.
 
@@ -922,7 +922,7 @@ Foxxo smiled up at Joe.
 
 “Mistakes are stepping stones, learning, young master…” Joe mused.
 
-“I guss so. But I’d never have learned that if I wasn’t for you. And I’d never have met you if it hadn’t been for that tree and that river…”
+“I guess so. But I’d never have learned that if I wasn’t for you. And I’d never have met you if it hadn’t been for that tree and that river…”
 
 To everyone else, Joe might seemed like a butler and nothing else, butFoxxo knew that beneath all that formal language and protocol, Joe was one of the best friends he could ever ask for.
 
@@ -994,7 +994,7 @@ General Bacon stared at Joe. Their eyes locked, both were nearly the same height
 
 “It’s very late. You need to eat your dinner soon, young master.” And without another word, Joe was on his way to the kitchen.
 
-Fooxo stood in the doorway, alone, and wondered. He was no stranger to keeping secrets. Being a bit sneaky was in his nature. There couldn’t always be something his friends, even Wuffle, didn’t know about him. But it never occurred to him before how much he didn’t know about his friends… even Joe.
+Foxxo stood in the doorway, alone, and wondered. He was no stranger to keeping secrets. Being a bit sneaky was in his nature. There couldn’t always be something his friends, even Wuffle, didn’t know about him. But it never occurred to him before how much he didn’t know about his friends… even Joe.
 
 As the dust on the road settled, and the limousine disappeared into the sunset, Foxxo snapped back to the present and when he detected the scent of stew cooking. He joined Joe in the kitchen, where his loyal butler was busy preparing their evening meal. The scent was making his mouth water.
 
@@ -1051,19 +1051,19 @@ Certain owners wish to permanently relinquish those rights to a Work for the pur
 For these and/or other purposes and motivations, and without any expectation of additional consideration or compensation, the person associating CC0 with a Work (the "Affirmer"), to the extent that he or she is an owner of Copyright and Related Rights in the Work, voluntarily elects to apply CC0 to the Work and publicly distribute the Work under its terms, with knowledge of his or her Copyright and Related Rights in the Work and the meaning and intended legal effect of CC0 on those rights.
 
 1. **Copyright and Related Rights.** A Work made available under CC0 may be protected by copyright and related or neighboring rights ("Copyright and Related Rights"). Copyright and Related Rights include, but are not limited to, the following:
-
+   
    i. the right to reproduce, adapt, distribute, perform, display, communicate, and translate a Work;
-
+   
    ii. moral rights retained by the original author(s) and/or performer(s);
-
+   
    iii. publicity and privacy rights pertaining to a person's image or likeness depicted in a Work;
-
+   
    iv. rights protecting against unfair competition in regards to a Work, subject to the limitations in paragraph 4(a), below;
-
+   
    v. rights protecting the extraction, dissemination, use and reuse of data in a Work;
-
+   
    vi. database rights (such as those arising under Directive 96/9/EC of the European Parliament and of the Council of 11 March 1996 on the legal protection of databases, and under any national implementation thereof, including any amended or successor version of such directive); and
-
+   
    vii. other similar, equivalent or corresponding rights throughout the world based on applicable law or treaty, and any national implementations thereof.
 
 2. **Waiver.** To the greatest extent permitted by, but not in contravention of, applicable law, Affirmer hereby overtly, fully, permanently, irrevocably and unconditionally waives, abandons, and surrenders all of Affirmer's Copyright and Related Rights and associated claims and causes of action, whether now known or unknown (including existing as well as future claims and causes of action), in the Work (i) in all territories worldwide, (ii) for the maximum duration provided by applicable law or treaty (including future time extensions), (iii) in any current or future medium and for any number of copies, and (iv) for any purpose whatsoever, including without limitation commercial, advertising or promotional purposes (the "Waiver"). Affirmer makes the Waiver for the benefit of each member of the public at large and to the detriment of Affirmer's heirs and successors, fully intending that such Waiver shall not be subject to revocation, rescission, cancellation, termination, or any other legal or equitable action to disrupt the quiet enjoyment of the Work by the public as contemplated by Affirmer's express Statement of Purpose.
@@ -1071,11 +1071,11 @@ For these and/or other purposes and motivations, and without any expectation of 
 3. **Public License Fallback.** Should any part of the Waiver for any reason be judged legally invalid or ineffective under applicable law, then the Waiver shall be preserved to the maximum extent permitted taking into account Affirmer's express Statement of Purpose. In addition, to the extent the Waiver is so judged Affirmer hereby grants to each affected person a royalty-free, non transferable, non sublicensable, non exclusive, irrevocable and unconditional license to exercise Affirmer's Copyright and Related Rights in the Work (i) in all territories worldwide, (ii) for the maximum duration provided by applicable law or treaty (including future time extensions), (iii) in any current or future medium and for any number of copies, and (iv) for any purpose whatsoever, including without limitation commercial, advertising or promotional purposes (the "License"). The License shall be deemed effective as of the date CC0 was applied by Affirmer to the Work. Should any part of the License for any reason be judged legally invalid or ineffective under applicable law, such partial invalidity or ineffectiveness shall not invalidate the remainder of the License, and in such case Affirmer hereby affirms that he or she will not (i) exercise any of his or her remaining Copyright and Related Rights in the Work or (ii) assert any associated claims and causes of action with respect to the Work, in either case contrary to Affirmer's express Statement of Purpose.
 
 4. **Limitations and Disclaimers.**
-
+   
    a. No trademark or patent rights held by Affirmer are waived, abandoned, surrendered, licensed or otherwise affected by this document.
-
+   
    b. Affirmer offers the Work as-is and makes no representations or warranties of any kind concerning the Work, express, implied, statutory or otherwise, including without limitation warranties of title, merchantability, fitness for a particular purpose, non infringement, or the absence of latent or other defects, accuracy, or the present or absence of errors, whether or not discoverable, all to the greatest extent permissible under applicable law.
-
+   
    c. Affirmer disclaims responsibility for clearing rights of other persons that may apply to the Work or any use thereof, including without limitation any person's Copyright and Related Rights in the Work. Further, Affirmer disclaims responsibility for obtaining any necessary consents, permissions or other rights required for any use of the Work.
-
+   
    d. Affirmer understands and acknowledges that Creative Commons is not a party to this document and has no duty or obligation with respect to this CC0 or use of the Work.
